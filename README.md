@@ -7,7 +7,7 @@ Guest blogging does not mean that you have to write just by the guidelines of th
 A 500-word blog is enough to fall in the eyes of Google. However, every word of this 500 quantity should be effective and meaningful. In the instant surge of traffic, bloggers tend to increase the quantity of the blogs. Nevertheless, they have to understand that guest blogging does not come up with an instant effect; rather you will see the benefits over a certain period. Instead of being impatient, be consistent with the quality and quantity of the posts.
 
 •    Youngsters Dominate the Blogging Sites
-More than 60% of bloggers and readers lie in the age group of 18-36, which means that you have a target audience out there that you need to focus on. Moreover, these readers read one or two blogs daily via their smart phones. Hence, in order to be an authoritative blogger, you will have to rule the minds of these Readers. The <ahref="http://sugardesigngroup.com/seo.html">search engine optimization companies in Langley</a> do follow this strategy effectively.
+More than 60% of bloggers and readers lie in the age group of 18-36, which means that you have a target audience out there that you need to focus on. Moreover, these readers read one or two blogs daily via their smart phones. Hence, in order to be an authoritative blogger, you will have to rule the minds of these Readers. The <a href="http://sugardesigngroup.com/seo.html">search engine optimization companies in Langley</a> do follow this strategy effectively.
 
 •    Motive Does Matter While Guest Blogging
 Mainly there are three motives behind guest blogging: 
